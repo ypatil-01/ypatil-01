@@ -1,3 +1,2 @@
-## WELL COME TO YO // TECH👋
-
+## WELL COME TO YO // TECH
 
